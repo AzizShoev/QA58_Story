@@ -10,4 +10,3 @@
 
 Я мог бы работать автомехаником, кладовщиком, продавцом, летчиком, но решил что IT сфера будет интереснее, прибыльнее и я смогу раскрыть свой потенциал не гробя спину и руки.
 ![it](https://png.pngtree.com/png-clipart/20220103/big/pngtree-creative-hand-drawn-programmer-festival-png-image_7010850.png)
-
